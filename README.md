@@ -1,0 +1,1 @@
+# Pam-s-HarvestCraft-localize-ja
